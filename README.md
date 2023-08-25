@@ -10,4 +10,6 @@ Yo sólo vine a corregir la ortografía de los demás. 😛 Αττε: Γιάνν
 
 Σι πουέντες λεέρ έστο, σακαράς 10 εν έστα ματέρια. :)
 
-el mas único y detergente que veras en tu vida reina
+El más único y detergente que verás en tu vida, reina.
+
+Corrección ortográfica, parte dos. :)
